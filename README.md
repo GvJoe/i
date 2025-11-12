@@ -1,3 +1,6 @@
+最新机场，有按流量走的不限时套餐，最低3.8元起步，决定性价比之选
+https://sakura-cat-cdn2.com/register?code=undefined
+
 BH专线版大陆地址：https://exce.sstea.men
 
 (此网址是大陆网络可以访问的,被墙后会随时更新,邀请好友必须用此网址内的邀请链接哦.)
